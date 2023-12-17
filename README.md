@@ -1,1 +1,4 @@
-# dmaitland.github.io
+# Darian Maitland
+## Education
+## Projects
+## Artwork
